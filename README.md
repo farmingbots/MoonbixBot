@@ -1,3 +1,6 @@
+# 🔥🔥 BUY TELEGRAM ACCOUNTS 🔥🔥
+Buy Telegram accounts at the rate 0.4$ DM for more info 
+https://t.me/accountsessions
 
 # 🔥🔥 Use PYTHON 3.10 - 3.11.5 🔥🔥
 
